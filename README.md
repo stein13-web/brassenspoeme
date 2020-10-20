@@ -12,10 +12,7 @@ Elle a fait son devoir ! C'est à dire que oncque
 Elle n'eut de souhait impossible, elle n'eut
 Aucun rêve de lune, aucun désir de jonque
 L'emportant sans rameurs sur un fleuve inconnu.
-Elle ne sentit pas lui courir sous la plume
-De ces grands souffles fous qu'on a dans le sommeil,
-pour aller voir la nuit comment le ciel s'allume
-Et mourir au matin sur le coeur du soleil.
+
 
 Et tous sont ainsi faits ! Vivre la même vie
 Toujours pour ces gens-là cela n'est point hideux
