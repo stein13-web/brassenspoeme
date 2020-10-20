@@ -21,7 +21,7 @@ Ou de n'en plus avoir ou bien d'en avoir deux.
 
 ils n'ont aucun besoin de baiser sur les lèvres,
 Et, loin des songes vains, loin des soucis cuisants,
-Posséder pour tout cœur un viscère sans fièvres,
+Possèdent pour tout cœur un viscère sans fièvres,
 Un coucou régulier et garanti dix ans !
 Oh ! les gens bienheureux !... Tout à coup, dans l'espace,
 Si haut qu'il semble aller lentement, un grand vol
